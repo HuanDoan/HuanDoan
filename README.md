@@ -12,3 +12,4 @@ Beside that, I'm also a [freelancer](https://www.upwork.com/freelancers/~01b3af2
 
 ---
 
+The best way to reach me is via [email](mailto:doanhuu.lehuan@gmail.com). I'm always open to everyone who have an interesting story and a collaboration 🙌
