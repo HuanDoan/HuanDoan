@@ -11,4 +11,4 @@ I came from the central highland of Viet Nam, in the small town totally sunny an
 Beside that, I'm also a [freelancer](https://www.upwork.com/freelancers/~01b3af2042b0454b6b). I take and do freelance job during my freetime.
 
 ---
-![php](https://api.iconify.design/simple-icons/php.svg#gh-light-mode-only)
+
