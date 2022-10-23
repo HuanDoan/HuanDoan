@@ -8,7 +8,7 @@ I come from the central highland of Viet Nam, in the sunny and windy town.
 - 📁 Former Web Developer of L&D team at Gameloft Viet Nam.
 - 📁 Former Technical Trainer at Gameloft Viet Nam.
 
-Besides, I'm also a [freelancer](https://www.upwork.com/freelancers/~01b3af2042b0454b6b). I take and do freelance job during my freetime.
+Besides, I'm also a [freelancer](https://www.upwork.com/freelancers/~01b3af2042b0454b6b). I take and do freelance job during my free time.
 
 ---
 
