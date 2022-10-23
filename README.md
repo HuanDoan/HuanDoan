@@ -2,7 +2,7 @@
 
 I'm a software engineer, specifically web development.  
 
-I come from the central highland of Viet Nam, in the small town the the sunny and windy totally.
+I come from the central highland of Viet Nam, in the sunny and windy town.
 
 - ⌨️ I'm working for a Japanese company as Technical Leader.
 - 📁 Former Web Developer of L&D team at Gameloft Viet Nam.
